@@ -1,1 +1,1 @@
-the lord is my shepherd, i shall not want 
+the lord is my shepherd, i shall not want. self 
